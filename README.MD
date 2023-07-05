@@ -13,8 +13,8 @@ I am NOT responsible for any damages caused by this software to anyone.
 I do NOT support any malicious use of this software. This is for educational purposes only.
 
 
-**TELEGRAM : @ALENDOK 
- [TELEGRAM](https://t.me/ALENDOK)**
+**TELEGRAM : @Vaskovel
+ [TELEGRAM](https://t.me/vaskovel)**
  
  
 ---
